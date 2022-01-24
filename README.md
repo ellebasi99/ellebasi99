@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ellebasi99
 - 👀 I’m interested in having fun
-- 🌱 I’m currently learning how to be human
+- 🌱 I’m currently learning how to function on a daily basis
 - 💞️ I’m looking to collaborate on anything if I can help lol
 - 📫 How to reach me // join unsw minecraft soc
 
